@@ -1,1 +1,2 @@
-# the-return-of-the-mythical-archmage
+# The Return Of The Mythical Archmage
+« Alors, je suis un inadapté de l’IA ? Le summum de la technologie magique moderne, une personne inadaptée incapable d’intégrer l’intelligence artificielle. Shin Hayul, le magicien de génie mis à l’écart. Un livre apparaît devant lui. »Au descendant qui peut entendre cette voix, qui possède la même constitution que la mienne, moi, Ray Bell Bytner, je laisse ce livre. » le livre laissé par l’archimage légendaire, Le génie peux enfin reprendre du service
